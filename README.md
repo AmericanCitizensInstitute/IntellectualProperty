@@ -1,2 +1,0 @@
-# IntellectualProperty
-American Citizens Institute
